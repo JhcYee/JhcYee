@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any case study or work
 - 📫 How to reach me: justinyee2005@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I love cooking food and also enjoying it afterward
+- ⚡ Fun fact: I love cooking food and sports!
 
 <!---
 JhcYee/JhcYee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
